@@ -1,0 +1,2 @@
+## dec 1.0^999^999: inf
+they had existed in uncountable quantities. as the universe unceasingly expanded into nothingness, their journeys became longer and longer until they were infinitely long. each photon would eventually exhaust itself, massless and lifeless particles trapped in the unimaginable vastness of space.
